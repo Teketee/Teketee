@@ -1,5 +1,4 @@
-It's only my third day out here.
-
+Just vibing...
 
 <!---
 - 👋 Hi, I’m @Teketee
